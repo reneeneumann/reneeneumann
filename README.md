@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @reneeneumann
-- 📫 How to reach me: neumannrenee0@gmail.com
+- 📫 How to reach me: rneuman4@asu.edu
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I'm an aspiring author and currently writing my first book!
 
